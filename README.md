@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **B.Tech AIE at Amrita Vishwavidyapeetham Amritapuri**
 
-- 📫 How to reach me **gokul.appu1@gmail.com**
+- 📫 contact me through **gokul.appu1@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
